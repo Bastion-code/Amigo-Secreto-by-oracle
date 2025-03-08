@@ -1,1 +1,0 @@
-# Amigo-Secreto-by-oracle
